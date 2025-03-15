@@ -1,6 +1,6 @@
 # 旅遊減碳
 ## 1. Plan Ahead
- your destination, including attractions, transportation, and local customs.
+ 	•	Research your destination, including attractions, transportation, and local customs.
 	•	Book accommodations and major activities in advance to avoid last-minute issues.
 	•	Create a rough itinerary but stay flexible for spontaneous experiences.
 ## 2. Pack Smart
